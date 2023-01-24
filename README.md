@@ -5,9 +5,6 @@
   </samp>
   <br>
   <br>
-  <img src="https://thumbs.gfycat.com/AngelicConcreteHypsilophodon.webp" width="300" />
-  <br>
-  <br>
   <samp>
     <b>How to reach me:</b>
     <br>
